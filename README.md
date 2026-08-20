@@ -24,6 +24,5 @@ Sou uma desenvolvedora apaixonada por tecnologia e software, com foco em **desen
 ---
 
 ## 📫 Contato
-E-mail: [taynamelo027@gmail.com](taynamelo027@gmail.com)  
 LinkedIn: [www.linkedin.com/in/tayná-melo-a24b552ba](https://www.linkedin.com/in/tayná-melo-a24b552ba)
 
